@@ -1,1 +1,1 @@
-Hi, I’m @Hugus2! I’m passionate about web development and cybersecurity. Currently, I’m learning full-stack development and cybersecurity. I enjoy jogging, spending time with family, and exploring new knowledge at an affordable price or free. Always eager to grow!
+Hi, I’m Fesseha! I’m passionate about web development and cybersecurity. Currently, I’m learning full-stack development and cybersecurity. I enjoy jogging, spending time with family, and exploring new knowledge at an affordable price or free. Always eager to grow!
